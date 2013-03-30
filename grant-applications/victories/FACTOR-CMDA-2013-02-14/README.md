@@ -1,5 +1,7 @@
 # FACTOR: Collective Initiatives - Marketing of Canadian Music on Digital Platforms 
 
-Documents herein represent materials submitted in support of the above titled grant. The grant was submitted on February 14, 2013.
+This grant was primarily written by Marie Flanagan, with support from Aaron Levin, Paisley Sim, and Paul Lawton. 
 
-Certain documents are not included, such as our marketing plan. 
+Incredible editorial insight was provided by Weird Canada's team of amazing volunteers: Myke Atkinson, Johnnie Regalado, Bryce Warnes, Joel LeBlanc, Jonathan Carrol, Millie Roy, JT Stephen, Chris Bateman, Michael Deane, Marie-Pier Gagnon, Jesse Locke, Jordan Voith, Derek Brooks, Jim Cuming, Alexandre Vailancourt, Alex Bourque, and Colleen Flanagan.
+
+Certain documents are not included, such as our marketing plan. Mainly to protect the innocent. 

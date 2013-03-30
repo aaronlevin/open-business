@@ -8,4 +8,4 @@ Their main point of contention was the blurry line between "curator", "artist", 
 
 In any case, we didn't get the grant. Nevertheless, we feel that it was a great application!
 
-Aaron Levin
+Marie Flanagan & Aaron Levin
