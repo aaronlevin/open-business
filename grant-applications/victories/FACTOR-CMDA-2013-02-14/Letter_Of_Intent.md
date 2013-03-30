@@ -16,6 +16,6 @@ Weird Canada has proven its ability to discover, positively represent, and suppo
 
 Thank you for your consideration,
 
-Marie LeBlanc Flanagan
-Executive Director, Wyrd Arts Initiatives
+Marie LeBlanc Flanagan  
+Executive Director, Wyrd Arts Initiatives  
 info@weirdcanada.com
